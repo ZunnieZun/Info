@@ -5,7 +5,8 @@ im very chill👍
 
 -pls respect mine and my friends bounderies. 
 
-fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more...
+fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more... <img width="50" height="50" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
+
 
 what i like and i dont like? idk– im js kidding, i'll tell u;
 
