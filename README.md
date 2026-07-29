@@ -14,7 +14,7 @@ fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more..
 
 what i like and i dont like? idk– im js kidding, i'll tell u;
 
-my likes: searching stuff (mostly webtoons that has yummy arts), sweets, nature, i do arts; drawing & sculpture.
+my likes: searching stuff (mostly webtoons that has yummy arts), sweets, nature, i do arts; drawing & sculpture. yaoi and yuri, love em ❤❤
 
 my dislikes: soggy foods, prawn, loud noises, homophobic (fuck u), but last and not least... mushroom.
 
