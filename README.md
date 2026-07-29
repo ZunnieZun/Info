@@ -1,7 +1,8 @@
 # Info
 Hello, u can call me Zun/Zunii or anything, i dont mind– unless if its smth vulgar, i do mind.
 
-im very chill👍
+im very chill👍 <img width="40" height="40" alt="17853203111053557103533593602200" src="https://github.com/user-attachments/assets/609e35a3-0a43-4078-b214-53d047459f61" />
+
 
 -pls respect mine and my friends bounderies. 
 
