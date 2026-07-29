@@ -5,6 +5,8 @@ im very chill👍 <img width="20" height="20" alt="17853203111053557103533593602
 
 -pls respect mine and my friends bounderies. 
 
+<img width="400" height="22" alt="17853218686123765461114593902681" src="https://github.com/user-attachments/assets/7530699b-88f8-4bb3-ace7-4a403d715e27" />
+
 
 fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more... <img width="30" height="30" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
 
