@@ -1,12 +1,12 @@
 # Info
 Hello, u can call me Zun/Zunii or anything, i dont mind– unless if its smth vulgar, i do mind.
 
-im very chill👍 <img width="40" height="40" alt="17853203111053557103533593602200" src="https://github.com/user-attachments/assets/609e35a3-0a43-4078-b214-53d047459f61" />
-
+im very chill👍 <img width="20" height="20" alt="17853203111053557103533593602200" src="https://github.com/user-attachments/assets/609e35a3-0a43-4078-b214-53d047459f61" />
 
 -pls respect mine and my friends bounderies. 
 
-fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more... <img width="50" height="50" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
+
+fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more... <img width="30" height="30" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
 
 
 what i like and i dont like? idk– im js kidding, i'll tell u;
@@ -14,6 +14,8 @@ what i like and i dont like? idk– im js kidding, i'll tell u;
 my likes: searching stuff (mostly webtoons that has yummy arts), sweets, nature, i do arts; drawing & sculpture.
 
 my dislikes: soggy foods, prawn, loud noises, homophobic (fuck u), but last and not least... mushroom.
+
+<img width="181" height="281" alt="17853210632804657002110956954701" src="https://github.com/user-attachments/assets/40430fcf-1996-4eb6-a694-19bc6c049084" />
 
 enjoy life, love ya ❤
 
