@@ -5,9 +5,11 @@ im very chill👍
 
 -pls respect mine and my friends bounderies. 
 
+fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more...
+
 what i like and i dont like? idk– im js kidding, i'll tell u;
 
-my likes: searching stuff (mostly webtoons that has yummy arts), zmst/alnst, mdzs, tgcf, 3fs, sweets, nature, i do arts; drawing & sculpture.
+my likes: searching stuff (mostly webtoons that has yummy arts), sweets, nature, i do arts; drawing & sculpture.
 
 my dislikes: soggy foods, prawn, loud noises, homophobic (fuck u), but last and not least... mushroom.
 
