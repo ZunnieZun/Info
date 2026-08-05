@@ -1,7 +1,7 @@
 # Info
 Hello, u can call me Zun/Zunii or anything, i dont mind– unless if its smth vulgar, i do mind.
 
-im very chill👍 <img width="20" height="20" alt="17853203111053557103533593602200" src="https://github.com/user-attachments/assets/609e35a3-0a43-4078-b214-53d047459f61" />
+im very chill 👍 i like hiding behind my friends, so u probably wont spot me, but u will when i pop out <img width="20" height="20" alt="17853203111053557103533593602200" src="https://github.com/user-attachments/assets/609e35a3-0a43-4078-b214-53d047459f61" />
 
 -pls respect mine and my friends bounderies. 
 
