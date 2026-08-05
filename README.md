@@ -5,7 +5,8 @@ im very chill👍 <img width="20" height="20" alt="17853203111053557103533593602
 
 -pls respect mine and my friends bounderies. 
 
-im quite chatty, soo.. bare with me when i am 😁
+i can get rlly quiet when im feeling down or some personal things, i'll be chatty when im feeling great or complains/feedbacks about smth soo.. bare with me when i am 😁
+
 <img width="400" height="22" alt="17853218686123765461114593902681" src="https://github.com/user-attachments/assets/7530699b-88f8-4bb3-ace7-4a403d715e27" />
 
 
@@ -16,7 +17,7 @@ what i like and i dont like? idk– im js kidding, i'll tell u;
 
 my likes: searching stuff (mostly webtoons that has yummy arts), sweets, nature, i do arts; drawing & sculpture. yaoi and yuri, love em ❤❤
 
-my dislikes: soggy foods, prawn, loud noises, homophobic (fuck u), but last and not least... mushroom.
+my dislikes: soggy foods, prawn, loud noises, homophobic, but last and not least... mushroom.
 
 <img width="181" height="281" alt="17853210632804657002110956954701" src="https://github.com/user-attachments/assets/40430fcf-1996-4eb6-a694-19bc6c049084" />
 
