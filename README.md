@@ -1,5 +1,5 @@
 # Info
-Hello, u can call me Zun/Zunii or anything, i dont mind– unless if its smth vulgar, i do mind.
+Hello, u can call me Zun/Zunii or anything, i dont mind– unless if its summat piss me off, i do mind.
 
 im very chill 👍 i like hiding behind my mates, so u probably wont spot me, but u will when i pop out like some meerkat <img width="20" height="20" alt="17860220481983861880173871456678" src="https://github.com/user-attachments/assets/0b4bda79-5bc4-40ac-9d28-88154e8cde26" />
 
