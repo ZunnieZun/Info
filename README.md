@@ -4,9 +4,9 @@ Hello, u can call me Zun/Zunii or anything, i dont mind– unless if its smth vu
 im very chill 👍 i like hiding behind my mates, so u probably wont spot me, but u will when i pop out like some meerkat <img width="20" height="20" alt="17860220481983861880173871456678" src="https://github.com/user-attachments/assets/0b4bda79-5bc4-40ac-9d28-88154e8cde26" />
 
 
--pls respect mine and my friends bounderies. 
+-pls respect mine and my mates bounderies. 
 
-i can get rlly quiet when im feeling down or some personal things, i'll be chatty when im feeling great or complains/feedbacks about smth soo.. bare with me when i am 😁
+i can get rlly off when im feeling down or some personal things, i'll be a chatter when im feeling great or complains/feedbacks about summat soo.. bare with me when i am 😁
 
 
 fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more... <img width="30" height="30" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
