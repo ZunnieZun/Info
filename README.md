@@ -18,6 +18,9 @@ my likes: searching stuff, music, sweets, nature, arts; drawing & sculpture. yao
 
 my dislikes: soggy foods, prawn, loud noises, homophobic, but last and not least... mushroom.
 
+⛔️- online
+🌙- busy/away
+
 <img width="181" height="281" alt="17853210632804657002110956954701" src="https://github.com/user-attachments/assets/40430fcf-1996-4eb6-a694-19bc6c049084" />
 
 enjoy life, love ya ❤
