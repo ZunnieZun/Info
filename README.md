@@ -3,6 +3,7 @@ Hello, u can call me Zun/Zunii or anything. i always make skins, but maybe *not*
 
 im very chill 👍 i like hiding behind my mates, so u probably wont spot me, but u will when i pop out like some meerkat <img width="20" height="20" alt="17860220481983861880173871456678" src="https://github.com/user-attachments/assets/0b4bda79-5bc4-40ac-9d28-88154e8cde26" />
 
+<img width="203" height="32" alt="image" src="https://github.com/user-attachments/assets/1a145477-0df5-406a-add7-52c8b53c3932" />
 
 -pls respect mine and my friends bounderies if told. 
 
