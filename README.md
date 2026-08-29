@@ -12,7 +12,7 @@ im very chill 👍 i like to hide behind my mates, but most of the time i'll be 
 i can get rlly off when im feeling down or some personal things.
 i need to cheer up.
 
-fandoms im in: 3fs, straykids, mdzs, zmst/alnst, orv, infinity nikki, and more... <img width="30" height="30" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
+fandoms: 3fs, layze, straykids, mdzs, zmst/alnst, orv, infinity nikki, death note, sky: cotl, and more... <img width="20" height="20" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
 
 
 what i like and i dont like? idk– im js kidding,
