@@ -25,7 +25,6 @@ my dislikes: soggy foods, prawn, loud noises, homophobic, but last and not least
 
 <img width="203" height="32" alt="image" src="https://github.com/user-attachments/assets/1a145477-0df5-406a-add7-52c8b53c3932" />
 
-🌙- busy/away/offtab
 
 <img width="181" height="281" alt="17853210632804657002110956954701" src="https://github.com/user-attachments/assets/40430fcf-1996-4eb6-a694-19bc6c049084" />
 
