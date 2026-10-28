@@ -2,17 +2,17 @@
 Hello, you can call me Zun/Zunii or anything. i always make skins, but maybe *not* always, some other day or time.
 
 
-im very chill 👍 i like to hide behind my mates, but most of the time i'll be beside them or alone <img width="20" height="20" alt="17860220481983861880173871456678" src="https://github.com/user-attachments/assets/0b4bda79-5bc4-40ac-9d28-88154e8cde26" />
+im very chill 👍 and yes im aware i can be blunt. i like to hide behind my mates, but most of the time i'll be beside them or alone <img width="20" height="20" alt="17860220481983861880173871456678" src="https://github.com/user-attachments/assets/0b4bda79-5bc4-40ac-9d28-88154e8cde26" />
 
 <img width="203" height="32" alt="image" src="https://github.com/user-attachments/assets/1a145477-0df5-406a-add7-52c8b53c3932" />
 
 -pls respect mine and my friends bounderies if told. 
 
--you can cover me or take inspo — ask first.
+-you can cover me or take inspo, ask first.
 
 i can get rlly off when im feeling down or some personal things.
 
-cheer up.
+cheer up gang.
 
 fandoms: 3fs, layze, straykids, mdzs, zmst/alnst, orv, infinity nikki, death note, sky: cotl, and more... <img width="20" height="20" alt="17853198675734563456788483761490" src="https://github.com/user-attachments/assets/1b900a67-b6ba-4b84-adef-7c2421b89370" />
 
